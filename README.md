@@ -1,4 +1,4 @@
 # study
 this is a repository for study
 
-’Ç‰Á‚µ‚Ü‚µ‚½B
+è¿½åŠ ã—ã¾ã—ãŸã€‚
